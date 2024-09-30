@@ -1,4 +1,3 @@
-# 🕔🪂🪂🪂🪂  
 ## 💣 Play Minesweeper Airdrop Hunt BybitCoinSweeper - Official Bybit Game [AUTO FREE]
 
 Bybit has partnered with Mantle to develop the mini-game "Bybit CoinSweeper" – inspired by the classic Minesweeper game. This is your chance to experience the game and win rewards from a prize pool of **100,000 $MNT**!
